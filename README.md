@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BrandonRose2
-- 💞️ I’m looking learn more about all the advances in artificial intelligence 
+- 💞️ ai fanatic  
 - 😄 Pronouns: He/him...
 
 <!---
