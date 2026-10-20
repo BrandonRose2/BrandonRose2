@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @BrandonRose2
-- 💞️ ai fanatic  
+- “Like gravity, karma is so basic we often don't even notice it.” ― Sakyong Mipham
+- "For every action, there is an equal & opposite reaction" - Sir Isaac Newton
 - 😄 Pronouns: He/him...
 
 <!---
